@@ -15,4 +15,4 @@
 <p align="center"> call of duty mw2 original
 <p align="center"> roblox hackers & myths (not forsaken)
 <p align="center"> minecraft (not mcyt)
-<p align="center"> minecraft horrororror & general minecraft horror
+<p align="center"> minecraft horror
