@@ -4,15 +4,11 @@
 
 <p align="center"> yumeshipper but i'll never talk about my yumes unless asked
 
+<p align="center"> ships are fine to interact as long as they aren't prosh/ps, but if i state i'm uncomfortable please listen
+
 <p align="center"> <p align="center"> <p align="center">
 <img src="https://files.catbox.moe/ub2lnf.jpg"</p> <img src="https://files.catbox.moe/w40wpr.jpg"</p> <img src="https://files.catbox.moe/odp1er.jpg"</p>
 
-<p align="center"> fandoms ! 
+<p align="center"> lowkenuinely yumesidering Sam Winchester don't kill me guys plea i know i already yume Rerir.. the greed is sickening
 
-<p align="center"> genshin impact
-<p align="center"> supernatural
-<p align="center"> resident evil
-<p align="center"> call of duty mw2 original
-<p align="center"> roblox hackers & myths (not forsaken)
-<p align="center"> minecraft (not mcyt)
-<p align="center"> minecraft horror
+<p align="center"> all my info is on my prns.cc i'm way too lazy to figure out how to make a strawpage
