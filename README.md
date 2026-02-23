@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/lqbjek.png"</p>
+<img src="https://cdn.discordapp.com/attachments/1041789108646842511/1475451028337066014/Tumblr_l_2192629026876181.gif?ex=699d8859&is=699c36d9&hm=91c1764d1ebd57d9d30ed565b4f8232ee5a3d97ddbc5670282d049ca06a4c989&"</p>
 
 <p align="center">
 <ins>wip</ins>
@@ -25,7 +25,10 @@
 <p align="center">
 𝘢𝘭𝘭 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘪𝘯𝘧𝘰 𝘪𝘴 𝘭𝘪𝘴𝘵𝘦𝘥 𝘰𝘯 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶𝘳 𝘤𝘰𝘯𝘷𝘦𝘯𝘪𝘦𝘯𝘤𝘦
 </p>
-  
+
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1041789108646842511/1475451024385900628/Tumblr_l_2192600158960255.gif?ex=699d8858&is=699c36d8&hm=f2663e6c1d6e22214fd760623777adb2f7ba080b5c3ac28de33b66ac2cecb536&"</p>
+
 <p align="center">
 <img src="https://files.catbox.moe/2q5mbu.gif"</p>
 
@@ -64,5 +67,5 @@ genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror mi
 </div>
 
 <p align="center">
-<img src="https://files.catbox.moe/lqbjek.png"</p>
+<img src="https://cdn.discordapp.com/attachments/1041789108646842511/1475451028337066014/Tumblr_l_2192629026876181.gif?ex=699d8859&is=699c36d9&hm=91c1764d1ebd57d9d30ed565b4f8232ee5a3d97ddbc5670282d049ca06a4c989&"</p>
 
