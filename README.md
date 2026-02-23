@@ -62,7 +62,7 @@ yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . 
 align="center">
 <details>
 <summary>interests/fandoms</summary>
-genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror minecraft (spinterest) . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . marvel cinematic universe . the batman 2022 . meatcanyon & creepcast . and more listed in my prns.cc !!
+genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror minecraft (spinterest) . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . marvel cinematic universe . lord of the rings . the batman 2022 . star wars . meatcanyon & creepcast . and more listed in my prns.cc !!
 </details>
 </div>
 
