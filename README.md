@@ -8,8 +8,10 @@
 𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Gabriel  ‎ 𝘰𝘳‎ ‎  Varka
 </p> 
 <p align="center">
-𝗺𝗮𝗹𝗲‎‎‎‎ ‎    .‎  ‎ 𝘩𝘦‎ ‎  .‎⠀𝘩𝘪𝘮 ‎  . ‎  𝘩𝘪𝘴
+𝙢𝙖𝙡𝙚‎‎‎‎ ‎    .‎  ‎ 𝘩𝘦‎ ‎  .‎⠀𝘩𝘪𝘮 ‎  . ‎  𝘩𝘪𝘴
 </p>
+<p align="center">
+𝘁𝗮𝗸𝗲𝗻 by my husband Harvey 🤤
 <p align="center">
 𝙢𝙡𝙢⠀𝘢𝘯𝘥‎ ‎  greyromantic
 </p>
