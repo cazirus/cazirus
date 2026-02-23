@@ -20,9 +20,12 @@
 𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜‎ ‎  Rerir ‎ yumeshipper !!
 </p>
 <p align="center">
-Jeffery Woods and Varka kin
+𝗝𝗲𝗳𝗳𝗲𝗿𝘆 Woods⠀𝘢𝘯𝘥‎ ‎  Varka kin
 </p>
-
+<p align="center">
+𝘢𝘭𝘭 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘪𝘯𝘧𝘰 𝘭𝘪𝘴𝘵𝘦𝘥 𝘰𝘯 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶𝘳 𝘤𝘰𝘯𝘷𝘦𝘯𝘪𝘦𝘯𝘤𝘦
+</p>
+  
 <p align="center">
 <img src="https://files.catbox.moe/2q5mbu.gif"</p>
 
