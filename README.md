@@ -23,7 +23,7 @@
 𝗝𝗲𝗳𝗳𝗲𝗿𝘆 Woods⠀𝘢𝘯𝘥‎ ‎  Varka kin
 </p>
 <p align="center">
-𝘢𝘭𝘭 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘪𝘯𝘧𝘰 𝘭𝘪𝘴𝘵𝘦𝘥 𝘰𝘯 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶𝘳 𝘤𝘰𝘯𝘷𝘦𝘯𝘪𝘦𝘯𝘤𝘦
+𝘢𝘭𝘭 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘪𝘯𝘧𝘰 𝘪𝘴 𝘭𝘪𝘴𝘵𝘦𝘥 𝘰𝘯 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶𝘳 𝘤𝘰𝘯𝘷𝘦𝘯𝘪𝘦𝘯𝘤𝘦
 </p>
   
 <p align="center">
@@ -59,9 +59,10 @@ yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . 
 align="center">
 <details>
 <summary>interests/fandoms</summary>
-genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror minecraft (spinterest) . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . marvel cinematic universe . the batman 2022 . meatcanyon & creepcast . and more listed in my prns.cc !!
+genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror minecraft (spinterest) . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . marvel cinematic universe . the batman 2022 . meatcanyon & creepcast . and more listed in my prns.cc !!
 </details>
 </div>
 
 <p align="center">
 <img src="https://files.catbox.moe/lqbjek.png"</p>
+
