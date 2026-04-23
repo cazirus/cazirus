@@ -2,24 +2,21 @@
 <img src="https://cdn.discordapp.com/attachments/1041789108646842511/1475451028337066014/Tumblr_l_2192629026876181.gif?ex=699d8859&is=699c36d9&hm=91c1764d1ebd57d9d30ed565b4f8232ee5a3d97ddbc5670282d049ca06a4c989&"</p>
 
 <p align="center">
-<ins>wip</ins>
+<ins>profile hvy wip</ins>
 
 <p align="center">
-𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Gabriel  ‎ 𝘰𝘳‎ ‎  Varka
+𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Gabriel  ‎ 𝘰𝘳‎ ‎  Derek / D3rek
 </p> 
 <p align="center">
 𝙢𝙖𝙡𝙚‎‎‎‎ ‎    .‎  ‎ 𝘩𝘦‎ ‎  .‎⠀𝘩𝘪𝘮 ‎  . ‎  𝘩𝘪𝘴
 </p>
 <p align="center">
-𝘁𝗮𝗸𝗲𝗻 by my husband Harvey 🤤
+𝘁𝗮𝗸𝗲𝗻 by my husband Harvey 💚
 <p align="center">
 𝙢𝙡𝙢⠀𝘢𝘯𝘥‎ ‎  greyromantic
 </p>
 <p align="center">
 𝗮𝘀𝗱‎ ‎  + ‎ 𝘰𝘴𝘥𝘥
-</p>
-<p align="center">
-𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜‎ ‎  Rerir ‎ yumeshipper !!
 </p>
 <p align="center">
 𝗝𝗲𝗳𝗳𝗲𝗿𝘆 Woods⠀𝘢𝘯𝘥‎ ‎  Varka kin
@@ -46,7 +43,7 @@ cuddle and hide ALWAYS i heavily encourage it its my favorite . i usually won't 
 align="center">
 <details>
 <summary>basic dni</summary>
-hazbin hotel fans iwecau & roblox fandom people iwcau . yume doubles , hates nonsharing yumes , base dni (homophobic, ableist, etc) , radqueer , proshipper/darkshipper , tcc , endo 'systems' & pro/neu endo are all a dni
+hazbin hotel fans iwecau & roblox fandom people iwcau . base dni (homo/transphobic, racist, ableist, etc) , hates nonsharing yumes , radqueer , proshipper/darkshipper , tcc , endo 'systems' & pro/neu endo
 </details>
 </div>
 
@@ -56,7 +53,7 @@ align="center">
 <summary>yume stuff</summary>
 i yumeship to cope w/ trauma, i'm aware rerir & the others r fictional & have permission from my boyfriend to yume! <3 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 some yumes listed are majorly yume'd by individual parts & not by me the host !! ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . orion turak - nonsharing . anomaly - yumesidering
+list heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . orion turak - nonsharing . anomaly - yumesidering
 </details>
 </div>
 
@@ -64,7 +61,7 @@ yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . 
 align="center">
 <details>
 <summary>interests/fandoms</summary>
-genshin impact (hyperfix) . creepypasta & slendermansion . minecraft & horror minecraft (spinterest) . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . marvel cinematic universe . lord of the rings . the batman 2022 . star wars . meatcanyon & creepcast . and more listed in my prns.cc !!
+sfawtde & dawtde . minecraft & horror minecraft (spinterest since 2022) . genshin impact . creepypasta & slendermansion . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . lord of the rings . the batman 2022 . star wars . meatcanyon & creepcast . and more listed in my prns.cc !!
 </details>
 </div>
 
