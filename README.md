@@ -42,18 +42,8 @@ cuddle and hide ALWAYS i heavily encourage it its my favorite . i usually won't 
 <div
 align="center">
 <details>
-<summary>basic dni</summary>
-hazbin hotel fans iwecau & roblox fandom people iwcau . base dni (homo/transphobic, racist, ableist, etc) , hates nonsharing yumes , radqueer , proshipper/darkshipper , tcc , endo 'systems' & pro/neu endo
-</details>
-</div>
-
-<div
-align="center">
-<details>
-<summary>yume stuff</summary>
-i yumeship to cope w/ trauma, i'm aware rerir & the others r fictional & have permission from my boyfriend to yume! <3 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-some yumes listed are majorly yume'd by individual parts & not by me the host !! ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-list heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . orion turak - nonsharing . anomaly - yumesidering
+<summary>dni list</summary>
+hazbin hotel fans iwecau & roblox fandom people iwcau . base dni (homo/transphobic, racist, ableist, etc) , radqueer , proshipper/darkshipper , tcc , endo 'systems' & pro/neu endo , hates nonsharing yumes or just hates yumeshippers in general
 </details>
 </div>
 
@@ -61,7 +51,7 @@ list heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . v
 align="center">
 <details>
 <summary>interests/fandoms</summary>
-sfawtde & dawtde . minecraft & horror minecraft (spinterest since 2022) . genshin impact . creepypasta & slendermansion . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . lord of the rings . the batman 2022 . star wars . meatcanyon & creepcast . and more listed in my prns.cc !!
+sfawtde & dawtde . minecraft & horror minecraft (spinterest since 2022) . genshin impact . creepypasta & slendermansion . malevolent podcast . supernatural . the scp foundation . roblox myths & hackers (NOT forsaken or similar games) . ultrakill . poppy playtime . fnaf . call of duty mw2 2009 . lord of the rings . the batman 2022 . star wars . meatcanyon & creepcast . and more listed in my prns.cc !!
 </details>
 </div>
 
