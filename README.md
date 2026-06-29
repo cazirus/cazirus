@@ -2,7 +2,7 @@
 <img src="https://cdn.discordapp.com/attachments/1041789108646842511/1475451028337066014/Tumblr_l_2192629026876181.gif?ex=699d8859&is=699c36d9&hm=91c1764d1ebd57d9d30ed565b4f8232ee5a3d97ddbc5670282d049ca06a4c989&"</p>
 
 <p align="center">
-<ins>profile hvy wip! retheming to reverse flash soon</ins>
+<ins>profile hvy wip! retheming soon</ins>
 
 <p align="center">
 𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Gabriel  ‎ 𝘰𝘳‎ ‎  Derek / D3rek
